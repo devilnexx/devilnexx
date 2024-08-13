@@ -1,1 +1,1 @@
-![](https://tenor.com/pt-BR/view/cat-silly-cat-gif-2350198842888430307)
+![](<div class="tenor-gif-embed" data-postid="2350198842888430307" data-share-method="host" data-aspect-ratio="1.19712" data-width="100%"><a href="https://tenor.com/view/cat-silly-cat-gif-2350198842888430307">Cat Silly Cat GIF</a>from <a href="https://tenor.com/search/cat-gifs">Cat GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
